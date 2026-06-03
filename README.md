@@ -1,6 +1,6 @@
 <div align="center">
 
-# 👋 Nadir Bhutta
+# Hi 👋, I'm Nadir Bhutta
 
 ### 🚀 GoHighLevel Expert | CRM Specialist | Funnel Builder | Automation Expert
 
