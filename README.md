@@ -10,9 +10,9 @@
 
 ---
 
-## 🚀 About Me
+## 🔗 I am a GoHighLevel (GHL) Expert . 😊😊
 
-I'm **Nadir Bhutta**, a passionate **GoHighLevel (GHL) Expert** specializing in CRM systems, workflow automation, funnel building, and website development.
+specializing in CRM systems, workflow automation, funnel building, and website development.
 
 I help businesses automate their processes, generate more leads, and increase conversions through smart digital solutions.
 
